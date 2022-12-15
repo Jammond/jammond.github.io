@@ -1,1 +1,0 @@
-# jammond.github.io
